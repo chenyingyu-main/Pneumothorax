@@ -1,1 +1,3 @@
+
 ![緝胸 - 人工智慧之無線手持超音波氣胸診斷](<【副本】緝胸-人工智慧之無線手持超音波氣胸診斷.png>)
+Please see the English and Japanese translation down below.
